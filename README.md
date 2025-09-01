@@ -9,7 +9,6 @@
 
 - 📄 Know about my experiences [https://www.canva.com/design/DAGxgtXAjHQ/KyWrY6n_05rou0sm48_SOQ/edit?utm_content=DAGxgtXAjHQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGxgtXAjHQ/KyWrY6n_05rou0sm48_SOQ/edit?utm_content=DAGxgtXAjHQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
