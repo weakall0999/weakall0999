@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bernardmaraon@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGxgtXAjHQ/KyWrY6n_05rou0sm48_SOQ/edit?utm_content=DAGxgtXAjHQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGxgtXAjHQ/KyWrY6n_05rou0sm48_SOQ/edit?utm_content=DAGxgtXAjHQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences https://www.canva.com/design/DAG9gQe0JLg/HdPWcco4t9ftGNqQ8KrOHA/edit?utm_content=DAG9gQe0JLg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 <p align="left">
 </p>
